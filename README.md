@@ -1,6 +1,6 @@
 # Doctor Who's Police Box
 
-![Doctors Box](https://www.bigchiefstudios.co.uk/media/product/feature/doctor-who/product-feature-10th-doctor-tardis.jpg)
+![Doctors Box](https://i.pinimg.com/736x/b4/a4/fb/b4a4fb83cc020ecddeb08c04af1fe2f3.jpg)
 
 ## Overview
 
